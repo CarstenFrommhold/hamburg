@@ -2,8 +2,8 @@
 
 ![](https://viel-unterwegs.de/wp-content/uploads/2021/11/hamburg-nikolaifleet-geheimtipps.jpg)
 
-## Hamburg im...
-- Frühling: Bei den ersten Sonnenstrahlen sind in Hamburg die Straßen direkt wieder voll. Straßenfeste, diverse Kulturveranstaltungen, Marathon. Und der HSV verspielt seit fünf Jahren regelmäßig den Wiederaufstieg.
+## Hamburg im ...
+- Frühling: Bei den ersten Sonnenstrahlen sind in Hamburg die Straßen direkt wieder voll. Straßenfeste, diverse Kulturveranstaltungen, Marathon. Und der HSV verspielt seit fünf Jahren regelmäßig den Wiederaufstieg in die Bundesliga.
 - Sommer: Sowieso die beste Jahreszeit. Im Juni sind die Tage bis zu 17 Stunden lang. Viel Betrieb auf der Alster und den Kanälen. Elbjazz & Open Air Konzerte im Stadtpark. Täglich Wasserlichtkonzerte in *Planten un Bloomen*. Cocktail am Strand Pauli und Chillen am Elbstrand.
 - Herbst: Zwischen goldenem Oktober und Schietwetter können auch mal nur wenige Minuten liegen. Wandern gehen, Museen besuchen.
 - Winter: Im Dezember Weihnachtsmärkte. Im Januar und Februar heißt es Durchhalten und von den Skandinaviern lernen, es sich gemütlich zu machen. Cafés, Kultur, Konzerte.
@@ -48,17 +48,18 @@ Hamburg hat wie alle Großstädte eine hohe Gastro Dichte, durch die man sich au
 
 Ein paar persönliche Empfehlungen:
 
-- [Mirou](https://www.mirou-hamburg.de/) - Israelische Küche
-- [Fardi](http://www.fardi-hamburg.de/) - syrische Küche, etwas gehobener
-- [Das Peace](https://www.tripadvisor.de/Restaurant_Review-g187331-d2042263-Reviews-Das_Peace-Hamburg.html) - Orientalische Tapas
-- [Le Golden Igel](https://legoldenigel.de/) - portugiesische Tapas
-- [Lesser Panda Ramen](https://www.lesser-panda-ramen.de/) - Ramen im Karolienenviertel
-- [Yaku](https://www.yaku-restaurante.de/) - Mexikanisch, peruanische Küche
-- [Vegan House](https://www.anveganlangereihe.de/) - Asiatisch, vegan, gibt es in St. Georg und Winterhude
-- [Svaadish](https://svaadish.de/) - Indian Street Food
-- [Störtebeker](https://stoertebeker-fischrestaurant.de/) - Deutsches Fischrestaurant am Hafen
+- [Mirou](https://www.mirou-hamburg.de/) - Israelische Küche 🇮🇱
+- [Fardi](http://www.fardi-hamburg.de/) - syrische Küche, etwas gehobener 🇸🇾
+- [Das Peace](https://www.tripadvisor.de/Restaurant_Review-g187331-d2042263-Reviews-Das_Peace-Hamburg.html) - Orientalische Tapas 🇦🇪
+- [Le Golden Igel](https://legoldenigel.de/) - portugiesische Tapas 🇵🇹
+- [Lesser Panda Ramen](https://www.lesser-panda-ramen.de/) - Ramen im Karolienenviertel 🇯🇵
+- [Yaku](https://www.yaku-restaurante.de/) - Mexikanisch, peruanische Küche 🇵🇪
+- [Vegan House](https://www.anveganlangereihe.de/) - Asiatisch, vegan, gibt es in St. Georg und Winterhude 🌏
+- [Svaadish](https://svaadish.de/) - Indian Street Food 🇮🇳
+- [Störtebeker](https://stoertebeker-fischrestaurant.de/) - Deutsches Fischrestaurant am Hafen 🇩🇪🐟
+- [Altes Mädchen](https://altes-maedchen.com/de/) - Braugasthaus der Ratsherren Brauerei 🍺
 
-Eine norddeutsche Spezialität ist *Labskaus*, ein Rindfleisch-Kartoffel Gemisch. 
+Eine norddeutsche Spezialität ist *Labskaus*, ein Rindfleisch-Kartoffel Gemisch. Wenn man sich drauf einlässt, passt dazu ein herbes Bier. 
 
 
 ## Wandern
