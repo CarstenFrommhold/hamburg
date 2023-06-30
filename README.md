@@ -17,11 +17,30 @@
 - Auf die Plaza der Elbphilharmonie
 - An den Landungsbrücken entlanglaufen
 - Fischbrötchen an Brücke 10
-- Hamburger Michel
+- St. Michaeliskirche
+- Jungfernstieg
+- Speicherstadt
+- Reeperbahn
+- ...
+
+## Museen
+
+- Miniaturwunderland
+- Maritimes Museum
+- Hamburger Kunsthalle
+- Deichtorhallen (Haus der Fotografie)
+- U Boot Museum am Hafen
+- ...
 
 ## Kunst & Kultur
 
 ...
+
+## Specials
+
+- Entwicklung der HafenCity
+- Airbus Werksführung
+- ...
 
 ## Essen gehen
 
@@ -36,7 +55,10 @@ Ein paar persönliche Empfehlungen:
 - [Lesser Panda Ramen](https://www.lesser-panda-ramen.de/) - Ramen im Karolienenviertel
 - [Yaku](https://www.yaku-restaurante.de/) - Mexikanisch, peruanische Küche
 - [Vegan House](https://www.anveganlangereihe.de/) - Asiatisch, vegan, gibt es in St. Georg und Winterhude
-- [Svaadish](https://svaadish.de/) - Indian Street Food 
+- [Svaadish](https://svaadish.de/) - Indian Street Food
+- [Störtebeker](https://stoertebeker-fischrestaurant.de/) - Deutsches Fischrestaurant am Hafen
+
+Eine norddeutsche Spezialität ist *Labskaus*, ein Rindfleisch-Kartoffel Gemisch. 
 
 
 ## Wandern
