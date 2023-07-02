@@ -57,6 +57,7 @@ Ein paar persönliche Empfehlungen:
 - [Das Peace](https://www.tripadvisor.de/Restaurant_Review-g187331-d2042263-Reviews-Das_Peace-Hamburg.html) - Orientalische Tapas 🇦🇪
 - [Le Golden Igel](https://legoldenigel.de/) - portugiesische Tapas 🇵🇹
 - [Lesser Panda Ramen](https://www.lesser-panda-ramen.de/) - Ramen im Karolienenviertel 🇯🇵
+- [Luigi](http://www.luigis-restaurants.de/) - Einer der besten Italiener in Hamburg 🍕🇮🇹
 - [Yaku](https://www.yaku-restaurante.de/) - Mexikanisch, peruanische Küche 🇵🇪
 - [Vegan House](https://www.anveganlangereihe.de/) - Asiatisch, vegan, gibt es in St. Georg und Winterhude 🌏
 - [Svaadish](https://svaadish.de/) - Indian Street Food 🇮🇳
