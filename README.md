@@ -74,6 +74,12 @@ Eine norddeutsche Spezialität ist *Labskaus*, ein Rindfleisch-Kartoffel Gemisch
 - In der [Fischbeker Heide](https://www.heidschnuckenweg.de/sehenswuerdigkeit/9370/fischbeker-heide.html) lässt sich eine schöne Wanderung in der Heidenlandschaft in der Länge individuell zusammenstellen. Für eine ausgedehnte Wanderung kann man auch die erste Etappe des Heidschnuckenwegs bis Buchholz laufen. Von dort kommt man mit der Bahn wieder zurück und hat dann 28km (6 Std Gehzeit) in den Beinen.
 - Nördlich der Außenalster kann man dem Alsterlauf auf verschiedenen Wegen folgen. Hier lohnt es sich einfach mal komoot anzuschmeißen.
 
+## Sportvereine ⚽🤾‍♀️🏀
+
+Auch als Groundhopper kommt man in Hamburg auf seine Kosten. Der HSV geht zur Saison 23/24 zwar in seine sechste Zweitligaspielzeit. Das tut dem Zuschauerzuspruch allerdings kaum einen Abbruch. Das traditionsreiche Volksparkstadion ist mit 57.000 Plätzen regelmäßig voll besetzt. Als Kiezclub mit Ambitionen lockt der FC St. Pauli mittlerweile jedes zweite Wochenende 30.000 Zuschauerinnen und Zuschauer an. Hamburg beheimatet fünf Vereine der Regionalliga Nord: Die zweiten Mannschaft des HSV und St. Pauli, Teutonia Ottensen sowie neuerdings den TSV Sasel & Eimsbüttler TV. Mit der U Bahn ist auch die Spielstätte von Eintracht Norderstedt erreichbar. In der Hamburger Oberliga tummeln sich traditionsreiche Vereine wie Altona 93 und Victoria *Vicky* Hamburg.  
+  
+Mit den Hamburg Towers und dem HSV Handball sind zwei Erstligisten im Handball und Basketball am Start.
+
 ## Tagestrips
 - Von Hamburg aus kann man in kurzer Zeit sowohl die Nordsee mit ihrem rauhem Charme als auch die Ostsee mit vielen Stränden und klarem Wasser erreichen. Das ist nicht nur im Sommer eine gute Idee.
 - Für einen Ausflug an die Nordsee bietet sich zum Beispiel Cuxhaven an. Kleinere Orte sind zum Beispiel Büsum oder St. Peter Ording. Alle Städte sind zur Saison sehr beliebt, das wirkt sich natürlich auch auf das Preisniveau aus. Bei Ebbe kann man durch das Watt wandern.
