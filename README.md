@@ -55,7 +55,7 @@ Ein paar persönliche Empfehlungen:
 - [Mirou](https://www.mirou-hamburg.de/) - Israelische Küche 🇮🇱
 - [Fardi](http://www.fardi-hamburg.de/) - syrische Küche, etwas gehobener 🇸🇾
 - [Das Peace](https://www.tripadvisor.de/Restaurant_Review-g187331-d2042263-Reviews-Das_Peace-Hamburg.html) - Orientalische Tapas 🇦🇪
-- [Le Golden Igel](https://legoldenigel.de/) - portugiesische Tapas 🇵🇹
+- [Le Golden Igel](https://legoldenigel.de/) - spanische Tapas 🇪🇸
 - [Lesser Panda Ramen](https://www.lesser-panda-ramen.de/) - Ramen im Karolienenviertel 🇯🇵
 - [Luigi](http://www.luigis-restaurants.de/) - Einer der besten Italiener in Hamburg 🍕🇮🇹
 - [Yaku](https://www.yaku-restaurante.de/) - Mexikanisch, peruanische Küche 🇵🇪
