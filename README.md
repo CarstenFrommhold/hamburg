@@ -10,7 +10,22 @@
 
 ## Treiben lassen 
 
-...
+Erster Tag? Lass dich einfach treiben.  
+  
+Dein erster Tag in Hamburg beginnt am Jungfernstieg, einer belebten Promenade entlang der Binnenalster. Du kannst die wunderschöne Aussicht auf das Wasser und die umliegenden Gebäude genießen.   
+  
+Vom Jungfernstieg aus kannst du Richtung Süden zum Rathausplatz schlendern. Das Rathaus ist Herzstück der Stadtverwaltung und begehbar. Der Rathausplatz ist oft Schauplatz von Veranstaltungen und Märkten. Verpasse dabei nicht den [Innenhof](https://www.hamburg.de/oeffentliche-plaetze/4258240/hamburger-rathaus-innenhof/).  
+
+Setze deinen Spaziergang fort, indem du dich in Richtung Osten bewegst, zur Speicherstadt. Dieser seit 2015 als UNESCO-Weltkulturerbe geschützte Komplex ist ein beeindruckendes Ensemble historischer Lagerhäuser, die auf Holzpfählen über den Wasserstraßen erbaut wurden. Die roten Backsteinfassaden und die verwinkelten Gassen verleihen der Gegend einen einzigartigen Charme. Hier wäre auch die Möglichkeit für einen ersten Muesumsbesuch, zum Beispiel das Speicherstadtmuseum, um mehr über die Geschichte der Speicherstadt zu erfahren. 
+  
+In wenigen Minuten bist du bei der Elbphilharmonie, neben der Michaeliskirche eines der Wahrzeichen der Stadt. Man hat kostenfreien Zugang auf die Plaza und von dort einen wunderbaren Blick in alle Himmelsrichtungen: Zur Elbinsel Veddel und deren Industrie, in Richtung der neuen Hafencity, auf die Neustadt oder auf die Landungsbrücken und St. Pauli. Hier lohnt es sich auch bei Sonnenuntergang nochmal wiederzukommen.  
+
+Nächste Station sind die Landungsbrücken. Diese sind über die Jan-Fedder-Promenade schnell erreicht. Du hast eine schöne Aussicht auf die die Elbe und die vorbeifahrenden Schiffe. 
+
+Abschließend kannst du dich auf den Weg zum alten Elbtunnel machen. Der historische Tunnel ist über 100 Jahre alt und ermöglicht Fußgängern sowie Fahrzeugen die Unterquerung der Elbe. Du kannst den Tunnel betreten und zu Fuß 400 Meter unter der Elbe hindurchgehen. Eine der Röhren ist bereits vollständig saniert, an der zweiten wird noch bis 2026 gearbeitet.  
+
+Auf der anderen Seite erwartet dich ein Blick auf die Landungsbrücken und auch die Elbphilharmonie erstrahlt von hier in vollem Glanz. An einer Bude der Brücke 10 gibt es als Belohnung ein Fischbrötchen. Willkommen in Hamburg! 🐟
+
 
 ## Was geht heute?
 
