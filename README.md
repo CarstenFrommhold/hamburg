@@ -91,7 +91,7 @@ Eine norddeutsche Spezialität ist *Labskaus*, ein Rindfleisch-Kartoffel Gemisch
 
 ## Sportvereine ⚽🤾‍♀️🏀
 
-Auch als Groundhopper kommt man in Hamburg auf seine Kosten. Der HSV geht zur Saison 23/24 zwar in seine sechste Zweitligaspielzeit. Das tut dem Zuschauerzuspruch allerdings kaum einen Abbruch. Das traditionsreiche Volksparkstadion ist mit 57.000 Plätzen regelmäßig voll besetzt. Als Kiezclub mit Ambitionen lockt der FC St. Pauli mittlerweile jedes zweite Wochenende 30.000 Zuschauerinnen und Zuschauer an. Hamburg beheimatet fünf Vereine der Regionalliga Nord: Die zweiten Mannschaft des HSV und St. Pauli, Teutonia Ottensen sowie neuerdings den TSV Sasel & Eimsbüttler TV. Mit der U Bahn ist auch die Spielstätte von Eintracht Norderstedt erreichbar. In der Hamburger Oberliga tummeln sich traditionsreiche Vereine wie Altona 93 und Victoria *Vicky* Hamburg.  
+Auch als Groundhopper kommt man in Hamburg auf seine Kosten. Der HSV geht zur Saison 23/24 zwar in seine sechste Zweitligaspielzeit. Das tut dem Zuschauerzuspruch allerdings kaum einen Abbruch. Das traditionsreiche Volksparkstadion ist mit 57.000 Plätzen regelmäßig voll besetzt. Als Kiezclub mit Ambitionen lockt der FC St. Pauli mittlerweile jedes zweite Wochenende 30.000 Zuschauerinnen und Zuschauer an. Hamburg beheimatet vier Vereine der Regionalliga Nord: Die zweiten Mannschaft des HSV und St. Pauli, Teutonia Ottensen sowie neuerdings den Eimsbüttler TV. Mit der U-Bahn ist auch die Spielstätte von Eintracht Norderstedt erreichbar. In der Hamburger Oberliga tummeln sich traditionsreiche Vereine wie Altona 93 und Victoria *Vicky* Hamburg.  
   
 Mit den Hamburg Towers und dem HSV Handball sind zwei Erstligisten im Handball und Basketball am Start.
 
