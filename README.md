@@ -2,6 +2,10 @@
 
 ![](https://viel-unterwegs.de/wp-content/uploads/2021/11/hamburg-nikolaifleet-geheimtipps.jpg)
 
+## Moin!
+
+Du verbringst einen Tag, ein Wochenende oder sogar eine längere Zeit in Hamburg? Eine fantastische Idee! 
+
 ## Hamburg im ...
 - Frühling: Bei den ersten Sonnenstrahlen sind in Hamburg die Straßen direkt wieder voll. Straßenfeste, diverse Kulturveranstaltungen, Marathon. Und der HSV verspielt seit fünf Jahren regelmäßig den Wiederaufstieg in die Bundesliga.
 - Sommer: Sowieso die beste Jahreszeit. Im Juni sind die Tage bis zu 17 Stunden lang. Viel Betrieb auf der Alster und den Kanälen. Elbjazz & Open Air Konzerte im Stadtpark. Täglich Wasserlichtkonzerte in *Planten un Bloomen*. Cocktail am Strand Pauli und Chillen am Elbstrand.
@@ -42,24 +46,26 @@ Auf der anderen Seite erwartet dich ein Blick auf die Landungsbrücken und auch 
 - Reeperbahn
 - ...
 
-## Museen
+## Museen, Kunst & Kultur
 
-- Miniaturwunderland
-- Maritimes Museum
-- Hamburger Kunsthalle
-- Deichtorhallen (Haus der Fotografie)
-- U Boot Museum am Hafen
-- ...
-
-## Kunst & Kultur
-
-...
+- [Das Miniaturwunderland](https://www.miniatur-wunderland.de/) Der Klassiker lohnt sich, man muss sich allerdings vorher um ein Ticket bemühen.
+- [Internationales Maritimes Museum](https://www.imm-hamburg.de/)
+- [Hamburger Kunsthalle](https://www.hamburger-kunsthalle.de/)
+- [Bucerius Kunst Forum](https://www.buceriuskunstforum.de/)
+- [Deichtorhallen Hamburg – Internationale Kunst und Fotografie](https://www.deichtorhallen.de/)
+- [Ernst Deutsch Theater](https://www.ernst-deutsch-theater.de/)
+- [Thalia Theater](https://www.thalia-theater.de/)
+- [Die Elbphilharmonie](https://www.elbphilharmonie.de/)
 
 ## Specials
 
 - Entwicklung der HafenCity
 - Airbus Werksführung
 - ...
+
+## Mobil Sein
+
+Wenn möglich, komm ohne Auto nach Hamburg. Parken macht hier keinen Spaß und ist seit 2023 auch an vielen Stellen kostenpflichtig geworden. Mit den Öffis ist man auf die meisten Strecken auch schneller unterwegs. Diese wiederum sind leider scheißteuer. Wohl dem, der ein Deutschlandticket am Start hat. Wenn nichts, gibt's Tickets beim [hvv](https://www.hvv.de/).
 
 ## Essen gehen
 
@@ -84,6 +90,8 @@ Eine norddeutsche Spezialität ist *Labskaus*, ein Rindfleisch-Kartoffel Gemisch
 
 ## Wandern
 
+Mit der Bahn in einer Stunde in die Berge? Leider keine Chance... Trotzdem kann man auch in & um Hamburg Wandenr gehen. 
+
 - Auf dem [grünen Ring](https://www.haspa-insider.de/wandern-auf-dem-gruenen-ring-hamburg/) (Der Name ist Programm) lässt sich Hamburg auf 100km erwandern. Die beste Etappe? Von Ohlsdorf über den Öjendorfer See zu den Boberger Niederungen, mit Abstecher zur Dünenlandschaft.
 - Vom Hbf kommt man innerhalb einer Stunde nach Lübeck-Travemünde und kann von dort an der Lübecker Bucht entlanglaufen. Nach den Steilküsten am Brodtener Ufer wird es in Niendorf und Timmendorf etwas belebter. Bei einer Wanderung bis nach Scharbeutz hat man ca. 15 km hinter sich gelegt & kann sich dann noch im Meer abkühlen.
 - In der [Fischbeker Heide](https://www.heidschnuckenweg.de/sehenswuerdigkeit/9370/fischbeker-heide.html) lässt sich eine schöne Wanderung in der Heidenlandschaft in der Länge individuell zusammenstellen. Für eine ausgedehnte Wanderung kann man auch die erste Etappe des Heidschnuckenwegs bis Buchholz laufen. Von dort kommt man mit der Bahn wieder zurück und hat dann 28km (6 Std Gehzeit) in den Beinen.
@@ -102,4 +110,4 @@ Mit den Hamburg Towers und dem HSV Handball sind zwei Erstligisten im Handball u
 - In der Gegend rund um den Plöner See kann man Fahrrad fahren, Campen, sich alte Schlösser anschauen oder sich auf die Suche nach dem Geist von Malente machen, der die deutsche Fußball-Nationalmannschaft 1974 zum Titel getragen hat.
 - Stade vereint maritimen und mittelalterlichen Flair mit vielen historischen Fachwerkhäusern in der Altstadt. Vom Hauptbahnhof kommt man per S-Bahn hin.
 - Lübeck, die "Königin der Hanse", bezaubert mit ihrem mittelalterlichen Charme, den beeindruckenden Backsteinbauten und dem historischen Stadtkern, der zum UNESCO-Welterbe zählt. Von Hamburg ist man mit dem Zug in einer Stunde da. Nicht verpassen: Ein Besuch im Hansemuseum und einen Marzipan-Cappuchino bei Niederegger.
-- Bremen ist kein Kandidat für die schönste Stadt der Welt, hat aber auch einiges zu bieten. Das Viertel hat authentische Kiez-Vibes. Im Schnoor Viertel kann man flanieren und in schöner Atmosphäre Essen gehen.
+- Bremen ist nicht unbedingt ein Kandidat für die schönste Stadt der Welt, hat aber auch einiges zu bieten. Das Viertel hat authentische Kiez-Vibes. Im Schnoor Viertel kann man flanieren und in schöner Atmosphäre Essen gehen.
